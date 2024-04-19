@@ -1,2 +1,2 @@
-# Typographix Company Website
+# Autographix Company Website
 
